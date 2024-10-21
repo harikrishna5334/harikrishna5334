@@ -1,5 +1,5 @@
 Hey everyone 👋 Hari here,
 
-I'm a Final year student pursuing computer science
+UnderGrad | computer science
 
 Aspiring Dev (future Ready😁) 
